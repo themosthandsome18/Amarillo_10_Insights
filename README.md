@@ -1,1 +1,0 @@
-# Amarillo_10_Insights
